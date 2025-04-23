@@ -1,4 +1,4 @@
-# drooollsls....
+# Hello. Get to know me
 Hi I'm Outlaw/Tenko or Xovexzi (Dont call me Xovosi I am not Notive I repeat I am not Notive)
 
 He/Him strictly. If you do not know my pronouns please ask me so you can use He/Him.
