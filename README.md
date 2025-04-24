@@ -18,4 +18,3 @@ I LIKE BLOOD DEBT and I also like In Plain Sight and Roblox ARGS I guess...
 ●  I have social anxiety and its hard for me to approach people to talk
 
 ●  I also stutter when saying the letter T and or words that start with T. (if you're in a vc with me; likely will not happen though)
-![picmix com_12254099](https://github.com/user-attachments/assets/10afb3de-a426-42c2-88ab-3af6d710fafd)
